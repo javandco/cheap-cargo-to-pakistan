@@ -1,2 +1,2 @@
 # cheap-cargo-to-pakistan
-Click on &lt;a href="http://www.javandco.co.uk">cheap cargo to pakistan&lt;/a> to know more..
+Click on <a href="http://www.javandco.co.uk">cheap cargo to pakistan</a> to know more..
